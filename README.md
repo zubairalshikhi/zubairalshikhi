@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zubairalshikhi
 - 👀 I’m interested in learning new things evey day 
-- 🌱 I’m currently Oldenburg Germany 
+- 🌱 I’m currently doing my Master at Oldenburg Germany 
 - 💞️ I’m looking to collaborate on applications for games 
 - 📫 How to reach me zubairalshikhi@gmail.com
 
